@@ -11,6 +11,10 @@
 ıl IWC ; OSDD ⏖ CPTSD ◜➴ BPD ! 
 Usually afk ◈ c+h & ints welcomed ,, </br>
 ASK 4 FRONT ; no dni, block freely </br> </br>‎ 
+ <p align="center">
+✦ intrests ,,, </br>
+ıl forsaken , blocktales , myths , rblx(yt) /games </br>‎ 
+◈ mcyt ; llsmp , showtimesmp , crazycraft , smp content </br> </br>‎ 
 
 ‎ <p align="center">
 <h2 align="center">  </h2>
